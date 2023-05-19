@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ta547
 - 👀 I’m interested in learning 
-- 🌱 I’m currently learning marketing 
+- 🌱 I’m currently learning Cyber Security 
 - 💞️ I’m looking to collaborate on product 
 - 📫 How to reach me tamim738@gmail.com
 
